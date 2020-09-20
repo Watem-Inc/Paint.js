@@ -1,1 +1,1 @@
-# Paint.js
+# Paint.js Get rekted noobs
